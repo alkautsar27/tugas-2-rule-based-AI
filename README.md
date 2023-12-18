@@ -1,0 +1,2 @@
+# tugas-2-rule-based-AI
+MUHAMMAD ALKAUTSAR TIRTA HAMJAYA
